@@ -1,1 +1,0 @@
-# study-for-ai2023
